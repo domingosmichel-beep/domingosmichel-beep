@@ -1,3 +1,3 @@
-## Hi, I'm Shadow 👋  I'm taking a systems development course.
+## Hi, I'm Shadow 👋  I'm taking a systems development course
 
 
