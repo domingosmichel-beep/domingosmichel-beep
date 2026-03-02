@@ -1,3 +1,3 @@
-## Hi, I'm Shadow maid👋
+## Hi, I'm Shadow 👋  I'm taking a systems development course.
 
 
