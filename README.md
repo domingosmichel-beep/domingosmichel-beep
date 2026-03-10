@@ -1,4 +1,4 @@
-## Hi, I'm Shadow >⩊<👋 ⋆༺𓆩☠︎︎𓆪༻⋆
+## Hi, I'm michel >⩊<👋 ⋆༺𓆩☠︎︎𓆪༻⋆
 * I'm taking a systems development course
 *  𝙳Ǝ⊲⊢𝙷 𝙽𝟎⊢𝙴
 *  I am 17 years old
